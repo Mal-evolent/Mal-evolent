@@ -1,2 +1,2 @@
-## The Developer behind Evolutio Damnata.
+## The Developer behind Damnata.
 
